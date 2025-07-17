@@ -1,5 +1,7 @@
 hell0
 
+***IF Y00U SEE ME E SITTING WITH A 7N7 REMINDER ER I AM N00T T F00RSAKEN EN***
+
 more information tion : system. plurall
 i get attachhed quickly y if givenn str0ng affection
 
