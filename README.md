@@ -2,6 +2,8 @@ hell0
 
 ***IF Y00U SEE ME E SITTING WITH A 7N7 REMINDER ER I AM N00T T F00RSAKEN EN***
 
+0nn pony town wn i will mostt likely ly be k00lkidd00, 0qSp0, orr s0nysays0 0
+
 more information tion : system. plurall
 i get attachhed quickly y if givenn str0ng affection
 
