@@ -1,22 +1,29 @@
-hell0
+HELLO_
 
-***IF Y00U SEE ME E SITTING WITH A 7N7 REMINDER ER I AM N00T T F00RSAKEN EN***
+***I_ENJOY_SITTING_NEAR_OTHER_HOMESTUCKS_STRIDERS_BRING_ME_COMFORT_***
 
-0nn pony town wn i will mostt likely ly be k00lkidd00, 0qSp0, orr s0nysays0 0
+I_AM_ON_PONY_TOWN_OFTEN_THIS_IS_FOR_PONYTOWN_
 
-more information tion : system. plurall
-i get attachhed quickly y if givenn str0ng affection
+DATABASE : PLURAL_
+ATTATCHED_QUICKLY_IF_GIVEN_AFFECTION_
+I_AM_NONHUMAN_
+VERY_SOCIAL_MAYBE_AWKWARD_
+![04273](https://github.com/user-attachments/assets/ce7390ac-3638-4127-85ca-d54aef8cd7cf)
 
-![SPINSPIN](https://github.com/user-attachments/assets/275b9521-2727-42e1-890e-934bbfd7a906)
 
-here is ouur [artfight](https://artfight.net/~CONFETTI_JESTER) we are getting t0 work work trust, heart. emoji.
-sm00ches. keethes. ex oh ex oh.
-
-<img width="328" height="310" alt="koolkiddo" src="https://github.com/user-attachments/assets/4c81a4db-e579-4e38-bc3d-ca2b93977a32" />
-
-y0u should draww me andd foxtr0ttt, 0r my pal. noli. with hjd for reference ce... this is n0t. a crossship. buut me and a qp's kins. hurry. hurry. t0 the strawawpage.
+[ARTFIGHT_](https://artfight.net/~CONFETTI_JESTER)
+[I_LIKE_HAL_](https://hal123.neocities.org/)
 
 
 
+NOT_TO_ASK_FOR_FANART_BUT_GIVE_ME_FANART_!
+HERE_ARE_SOME_REFERENCES_
+![Untitled621_20260110000353](https://github.com/user-attachments/assets/658bea95-7804-494e-879b-176b7ee1b307) ![Untitled626_20260110001343](https://github.com/user-attachments/assets/e62b7b32-3f6f-40b0-a24f-8e025a74e114)
+<img width="328" height="510" src="https://cdn.discordapp.com/attachments/1026468732165431327/1459483884709351525/9TlkAAAAABklEQVQDAGV4aTKckNTZAAAAAElFTkSuQmCC.png?ex=696371ca&is=6962204a&hm=c0bfe3a3c04d36a688092e85eaf893c6a8445fcd39c9469e22461c16540b26c2&" /> <img width="328" height="310" src="https://cdn.discordapp.com/attachments/1026468732165431327/1459483884373803104/IMG_20260109_200604.jpg?ex=696371c9&is=69622049&hm=8a6dae42002e22bbfbd50672d1fe14583ce5ac7d4c0e40f9eccd12541ed200b5&" />  COLORS_MAY_BE_CHANGED_ON_THE_ULT_MODEL_
 
-<sub>more information, i am a xenogender c0llector, trans, andd prettyy effing swag. i amm n0n human but fall in the humanoid shapeshiftter category ory this is my [flightrising](https://www1.flightrising.com/clan-profile/659793) i would love love t0 be y0ur friend</sub>
+
+
+
+
+
+<sub>MORE_DATA_I_SELFSHIP_AND_QUITE_FRANKLY_ACT_A_BIT_WEIRD_I_LIKE_TO_DUO_RP_IN_PT_LABS_AND_I_DONT_GO_NONVERBAL_I_SOMETIMES_JUST_DONT_WANT_TO_TYPE_KEK_HERE_IS_MY_[flightrising](https://www1.flightrising.com/clan-profile/659793)_BEING_YOUR_FRIEND_SOUNDS_NICE_</sub>
