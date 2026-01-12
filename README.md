@@ -18,8 +18,10 @@ VERY_SOCIAL_MAYBE_AWKWARD_
 
 NOT_TO_ASK_FOR_FANART_BUT_GIVE_ME_FANART_!
 HERE_ARE_SOME_REFERENCES_
+
+
 ![Untitled621_20260110000353](https://github.com/user-attachments/assets/658bea95-7804-494e-879b-176b7ee1b307) ![Untitled626_20260110001343](https://github.com/user-attachments/assets/e62b7b32-3f6f-40b0-a24f-8e025a74e114)
-<img width="328" height="510" src="https://cdn.discordapp.com/attachments/1026468732165431327/1459483884709351525/9TlkAAAAABklEQVQDAGV4aTKckNTZAAAAAElFTkSuQmCC.png?ex=696371ca&is=6962204a&hm=c0bfe3a3c04d36a688092e85eaf893c6a8445fcd39c9469e22461c16540b26c2&" /> <img width="328" height="310" src="https://cdn.discordapp.com/attachments/1026468732165431327/1459483884373803104/IMG_20260109_200604.jpg?ex=696371c9&is=69622049&hm=8a6dae42002e22bbfbd50672d1fe14583ce5ac7d4c0e40f9eccd12541ed200b5&" />  COLORS_MAY_BE_CHANGED_ON_THE_ULT_MODEL_
+<img width="328" height="510" src="https://cdn.discordapp.com/attachments/1026468732165431327/1459483884709351525/9TlkAAAAABklEQVQDAGV4aTKckNTZAAAAAElFTkSuQmCC.png?ex=696371ca&is=6962204a&hm=c0bfe3a3c04d36a688092e85eaf893c6a8445fcd39c9469e22461c16540b26c2&" /> <img width="100" height="210" src="https://media.discordapp.net/attachments/1405272630952722576/1460052717488836608/Untitled631_20260111015127.png?ex=6965838e&is=6964320e&hm=54ef132e12234d99e043740b15e659c631003f981ea600807f50d9223378050a&=&format=webp&quality=lossless&width=378&height=800" />
 
 
 
